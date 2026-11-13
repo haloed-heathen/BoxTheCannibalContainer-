@@ -2,17 +2,17 @@
 <img width="717" height="535" alt="1000016061" src="https://github.com/user-attachments/assets/6ba05734-8559-4ac8-8526-d8e519685304" />
 
 —————————————————————————
-
-# About-me
 📦✏️ ~ ` My Fictionkins ` ~✏️📦
 
-Bfdi– marker, ruby, four, five, eight, ten, bubble, grassy, and coiny
+Bfdi– marker, ruby, four, five, eight, ten, bubble, grassy, fifteen and coiny
 
 II– knife, magnet, trophy, oj, nickel, and suitcase
 
 HFJONE– liam and bryce
 
-Objectified– Spool.    <img width="200" height="200" alt="1000016064" src="https://github.com/user-attachments/assets/2e2143dc-4fe7-458b-86f0-b0d1ee028bc7" />
+Objectified– Spool, Citrus, Wagyu
+Object Cringe- Anxiety
+<img width="200" height="200" alt="1000016064" src="https://github.com/user-attachments/assets/2e2143dc-4fe7-458b-86f0-b0d1ee028bc7" />
 
 
 -' + Other + '-
